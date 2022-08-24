@@ -1,1 +1,0 @@
-# jstanesic.github.io
